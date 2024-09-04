@@ -1,2 +1,1 @@
-# 696969
-delelme
+ganja ganja ganja vimal pan bolo zuban kasari 
